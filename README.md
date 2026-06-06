@@ -81,4 +81,4 @@ We may update this Privacy Policy from time to time. Changes will be posted at t
 11. Contact
 
 If you have questions about this Privacy Policy or your data, contact:
-kagrisol1@gmail.com
+pwkahonde@gmail.com
